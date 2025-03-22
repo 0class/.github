@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/2a2cfc94-20b7-45f0-8f4a-904b2280477f)
+
 # 0Class Team
 
 零课表团队（0Class Team），即零课表（北京）信息技术有限公司，是一个由创新驱动，正不断发生进步的创客团队。
